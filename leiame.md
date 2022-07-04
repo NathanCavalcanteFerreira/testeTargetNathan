@@ -1,0 +1,2 @@
+Ola pessoal, eu me chamo Nathan e gostei muito dos exercicios. Peço uma oportunidade de uma entrevista. Confesso que não entendi a questão 3, o arquivo json estava onde? no mais o meu 
+e-mail é: nathancferreira00@gmail.com
